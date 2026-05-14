@@ -1,4 +1,4 @@
-#  
+#  Todoist for macOS exclusive Utility - offline access and widgets is the best Todoist for macOS utility, featuring offline access and widgets. Safe, efficient, and optimized for
 
 
 
